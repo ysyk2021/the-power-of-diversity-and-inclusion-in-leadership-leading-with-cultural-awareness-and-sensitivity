@@ -16,5 +16,4 @@ Finally, Chapter 9 looks ahead to the future of diversity and inclusion in leade
 
 Throughout the book, you'll find real-world examples and stories of successful diversity and inclusion in leadership, as well as practical exercises and tips for putting the strategies into practice. By the end of the book, you'll have a solid understanding of what it takes to lead with cultural awareness and sensitivity, and the tools you need to succeed in promoting diversity and inclusion in your workplace.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
