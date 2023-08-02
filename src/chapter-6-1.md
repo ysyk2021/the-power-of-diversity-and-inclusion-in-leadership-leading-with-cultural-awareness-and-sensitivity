@@ -1,4 +1,4 @@
-Chapter 7: Understanding the Dynamics of Diverse Teams
+Understanding the Dynamics of Diverse Teams
 ======================================================
 
 Diverse teams offer a wealth of perspectives, experiences, and talents that can drive innovation, creativity, and organizational success. However, leading diverse teams also poses unique challenges. In this chapter, we explore the dynamics of diverse teams, providing insights and strategies for leaders to effectively harness the power of diversity while fostering inclusivity and collaboration.

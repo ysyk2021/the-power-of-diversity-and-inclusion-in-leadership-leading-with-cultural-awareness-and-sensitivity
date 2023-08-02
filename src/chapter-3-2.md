@@ -1,4 +1,4 @@
-Chapter 3: Creating a Framework for Diversity and Inclusion Based on Shared Values and Priorities
+Creating a Framework for Diversity and Inclusion Based on Shared Values and Priorities
 =================================================================================================
 
 In this chapter, we will explore the process of creating a framework for diversity and inclusion based on shared values and priorities. Developing a clear and well-defined framework serves as a roadmap for leaders to effectively foster diversity, promote inclusion, and embrace cultural awareness and sensitivity within their organizations.

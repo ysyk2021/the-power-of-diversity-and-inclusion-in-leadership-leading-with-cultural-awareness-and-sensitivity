@@ -1,4 +1,4 @@
-Chapter 5: Developing Strategies for Building Cultural Awareness and Sensitivity
+Developing Strategies for Building Cultural Awareness and Sensitivity
 ================================================================================
 
 In today's diverse and multicultural society, leaders must possess cultural awareness and sensitivity to lead effectively. This chapter explores strategies for developing and enhancing cultural awareness and sensitivity, enabling leaders to navigate cultural differences and create inclusive environments.

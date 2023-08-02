@@ -1,4 +1,4 @@
-Chapter 4: Understanding the Role of Unconscious Bias and Stereotypes in Diversity and Inclusion
+Understanding the Role of Unconscious Bias and Stereotypes in Diversity and Inclusion
 ================================================================================================
 
 In this chapter, we will delve into the crucial role that unconscious bias and stereotypes play in diversity and inclusion. Recognizing and addressing these biases is essential for leaders who aim to create an inclusive environment where individuals are valued for their unique talents and perspectives.

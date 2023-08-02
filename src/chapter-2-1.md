@@ -1,4 +1,4 @@
-Chapter 7: Recognizing the Different Factors That Impact Diversity and Inclusion in the Workplace
+Recognizing the Different Factors That Impact Diversity and Inclusion in the Workplace
 =================================================================================================
 
 In this chapter, we will explore the various factors that significantly influence diversity and inclusion in the workplace. Understanding these factors is essential for leaders who aim to create an inclusive environment where all individuals feel valued, respected, and empowered.
