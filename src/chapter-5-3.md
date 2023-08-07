@@ -52,4 +52,3 @@ Conclusion
 
 Creating a more inclusive workplace requires addressing biases and prejudices within organizations. By identifying biases and prejudices, creating awareness and education programs, implementing policies and practices that promote inclusion, and fostering a culture of inclusion, leaders can drive progress towards creating a more inclusive workplace. Remember to regularly assess your efforts and adjust your strategies as needed to achieve success in your leadership role.
 
-
