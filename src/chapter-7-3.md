@@ -1,5 +1,3 @@
-Creating a Culture of Open Dialogue and Constructive Feedback
-=========================================================================================================================
 
 Creating a culture of open dialogue and constructive feedback is essential for effective leadership in today's diverse business environment. In this chapter, we will explore how to create such a culture when navigating difficult conversations and conflict.
 

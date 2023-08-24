@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Diversity and Inclusion
-===========================================================
 
 Measuring and evaluating diversity and inclusion is essential for understanding the effectiveness of diversity and inclusion initiatives and making data-driven decisions to improve organizational performance. In this chapter, we will explore establishing metrics and benchmarks for measuring diversity and inclusion, evaluating the impact of diversity and inclusion initiatives on organizational performance, and using data to continuously improve diversity and inclusion practices.
 

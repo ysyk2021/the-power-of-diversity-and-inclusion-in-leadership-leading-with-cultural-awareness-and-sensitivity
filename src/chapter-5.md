@@ -1,5 +1,3 @@
-Chapter 5: Fostering Inclusive Work Environments
-================================================
 
 Creating an inclusive work environment is essential for promoting diversity and inclusion within organizations. In this chapter, we will explore strategies for fostering inclusivity through policies, practices, and behaviors, developing strategies for creating inclusive work environments, and addressing biases and prejudices within organizations.
 

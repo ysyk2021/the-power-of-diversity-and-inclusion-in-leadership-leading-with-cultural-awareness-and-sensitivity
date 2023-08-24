@@ -1,5 +1,3 @@
-Establishing Metrics and Benchmarks for Measuring Diversity and Inclusion
-======================================================================================================================================
 
 Measuring and evaluating diversity and inclusion is essential to understanding the impact of diversity and inclusion initiatives on organizational performance. In this chapter, we will explore how to establish metrics and benchmarks for measuring diversity and inclusion.
 

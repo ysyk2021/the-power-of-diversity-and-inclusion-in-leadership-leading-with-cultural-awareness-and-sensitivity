@@ -1,5 +1,3 @@
-Addressing Biases and Prejudices within Organizations
-=======================================================================================================
 
 Fostering inclusive work environments requires addressing biases and prejudices within organizations. In this chapter, we will explore the steps involved in creating a more inclusive workplace by addressing biases and prejudices.
 

@@ -1,5 +1,3 @@
-Chapter 1: Introduction to Diversity and Inclusion in Leadership
-================================================================
 
 Diversity and inclusion are essential components of effective leadership. In this chapter, we will define diversity and inclusion and explore their importance in leadership. We will also discuss historical perspectives on diversity and inclusion theory and practice and the challenges and opportunities of leading with cultural awareness and sensitivity.
 

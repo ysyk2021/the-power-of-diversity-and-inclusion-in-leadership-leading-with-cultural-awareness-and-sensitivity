@@ -1,5 +1,3 @@
-Chapter 3: Developing a Diversity and Inclusion Framework
-=========================================================
 
 Developing a diversity and inclusion framework is crucial for creating an environment that values and respects all individuals. In this chapter, we will explore the steps involved in developing a diversity and inclusion framework, including assessing your own needs and goals, creating a framework based on shared values and priorities, and tailoring your approach to different types of organizations and industries.
 

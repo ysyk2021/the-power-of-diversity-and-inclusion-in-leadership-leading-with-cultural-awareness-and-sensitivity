@@ -1,5 +1,3 @@
-Chapter 4: Building Cultural Awareness and Sensitivity
-======================================================
 
 Building cultural awareness and sensitivity is essential for promoting diversity and inclusion within organizations. In this chapter, we will explore strategies for building cultural awareness and sensitivity, understanding the impact of culture on communication and behavior, and building cross-cultural competence and adaptability.
 

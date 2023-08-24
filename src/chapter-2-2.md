@@ -1,5 +1,3 @@
-Identifying Common Barriers to Effective Diversity and Inclusion
-====================================================================================================================================
 
 Identifying common barriers to effective diversity and inclusion is critical for effective leadership in today's diverse business environment. In this chapter, we will explore some of the common barriers to effective diversity and inclusion.
 

@@ -1,5 +1,3 @@
-Chapter 7: Navigating Difficult Conversations and Conflict
-==========================================================
 
 Difficult conversations and conflict can arise in any workplace, but navigating them with empathy and respect is crucial for promoting diversity and inclusion. In this chapter, we will explore the impact of difficult conversations and conflict on diversity and inclusion, strategies for handling challenging situations, and creating a culture of open dialogue and constructive feedback.
 

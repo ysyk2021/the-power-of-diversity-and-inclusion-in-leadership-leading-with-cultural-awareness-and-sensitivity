@@ -1,5 +1,3 @@
-Historical Perspectives on Diversity and Inclusion Theory and Practice
-========================================================================================================================================
 
 Diversity and inclusion have become increasingly important components of effective leadership in today's global business environment. In this chapter, we will provide an introduction to diversity and inclusion in leadership by exploring the historical perspectives on diversity and inclusion theory and practice.
 

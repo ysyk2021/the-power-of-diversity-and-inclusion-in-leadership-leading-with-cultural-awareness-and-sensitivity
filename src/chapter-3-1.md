@@ -1,5 +1,3 @@
-Assessing Your Own Diversity and Inclusion Needs and Goals
-=====================================================================================================================
 
 Developing a diversity and inclusion framework requires assessing your own organization's diversity and inclusion needs and goals. In this chapter, we will explore strategies for assessing your own diversity and inclusion needs and goals.
 

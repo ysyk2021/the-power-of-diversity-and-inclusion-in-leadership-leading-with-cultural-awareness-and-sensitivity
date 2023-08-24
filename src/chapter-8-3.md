@@ -1,5 +1,3 @@
-Using Data to Continuously Improve Diversity and Inclusion Practices
-===============================================================================
 
 In this chapter, we will explore the importance of using data to continuously improve diversity and inclusion practices. Leveraging data allows organizations to assess the effectiveness of their initiatives, identify areas for improvement, and make data-informed decisions to foster a more inclusive workplace.
 

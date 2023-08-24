@@ -1,5 +1,3 @@
-Chapter 6: Leading Diverse Teams
-================================
 
 Leading diverse teams can present unique challenges and opportunities for leaders. In this chapter, we will explore the dynamics of diverse teams, strategies for leading and managing diverse teams, and building trust and rapport with team members from different backgrounds.
 

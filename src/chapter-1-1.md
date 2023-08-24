@@ -1,5 +1,3 @@
-Defining Diversity and Inclusion and Their Importance in Leadership
-==============================================================================
 
 In this chapter, we will explore the definitions of diversity and inclusion and examine their crucial importance in leadership. Understanding these concepts is essential for leaders who seek to create inclusive environments that celebrate and leverage the unique perspectives and talents of a diverse workforce.
 

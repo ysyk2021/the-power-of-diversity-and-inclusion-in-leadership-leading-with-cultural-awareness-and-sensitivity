@@ -1,5 +1,3 @@
-Building Trust and Rapport with Team Members from Different Backgrounds
-==================================================================================
 
 Building trust and rapport is a foundational aspect of effective leadership, especially when leading diverse teams. This chapter explores strategies for fostering trust and establishing strong relationships with team members from different cultural backgrounds, enabling leaders to create inclusive and collaborative work environments.
 

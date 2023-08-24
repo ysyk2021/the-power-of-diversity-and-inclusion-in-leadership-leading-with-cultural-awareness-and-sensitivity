@@ -1,5 +1,3 @@
-Evaluating the Impact of Diversity and Inclusion Initiatives on Organizational Performance
-=====================================================================================================
 
 In this chapter, we will explore the importance of evaluating the impact of diversity and inclusion initiatives on organizational performance. Effectively measuring the outcomes of these initiatives allows leaders to understand their effectiveness, identify areas for improvement, and make data-informed decisions to drive organizational success.
 

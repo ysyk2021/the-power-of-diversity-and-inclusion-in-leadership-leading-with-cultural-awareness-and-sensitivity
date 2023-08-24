@@ -1,5 +1,3 @@
-Developing Strategies for Creating Inclusive Work Environments
-================================================================================================================
 
 Creating inclusive work environments is essential for effective leadership in today's diverse business environment. In this chapter, we will explore the strategies involved in creating inclusive work environments.
 

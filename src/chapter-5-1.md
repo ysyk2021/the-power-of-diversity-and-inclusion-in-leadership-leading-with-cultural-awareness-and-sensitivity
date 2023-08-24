@@ -1,5 +1,3 @@
-Encouraging Inclusivity through Policies, Practices, and Behaviors
-====================================================================================================================
 
 Encouraging inclusivity through policies, practices, and behaviors is essential for effective leadership in today's diverse business environment. In this chapter, we will explore strategies to foster inclusive work environments.
 

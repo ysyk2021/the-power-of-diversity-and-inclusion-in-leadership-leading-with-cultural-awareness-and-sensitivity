@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Psychology of Diversity and Inclusion
-==================================================================
 
 Understanding the psychology of diversity and inclusion is crucial for creating a workplace that values and respects all individuals. In this chapter, we will explore the different factors that impact diversity and inclusion in the workplace, common barriers to effective diversity and inclusion, and the role of unconscious bias and stereotypes in diversity and inclusion.
 
