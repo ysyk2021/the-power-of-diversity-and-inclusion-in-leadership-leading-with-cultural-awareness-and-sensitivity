@@ -1,3 +1,6 @@
+# The Power of Diversity and Inclusion in Leadership: Leading with Cultural Awareness and Sensitivity
+
+Book Link: [https://zhengpublishing.com/the-power-of-diversity-and-inclusion-in-leadership-leading-with-cultural-awareness-and-sensitivity/](https://zhengpublishing.com/the-power-of-diversity-and-inclusion-in-leadership-leading-with-cultural-awareness-and-sensitivity/)
 
 Diversity and inclusion are crucial components of effective leadership in today's globalized and interconnected world. Leaders who prioritize diversity and inclusion are better equipped to build strong, high-performing teams, foster innovation and creativity, and create a culture of respect and belonging.
 
